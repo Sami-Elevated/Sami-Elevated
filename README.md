@@ -1,3 +1,3 @@
 - 🔭 I’m currently a chemical engineering student at EPFL
-- 📫 How to reach me: sam.meghezzi@gmail.com
+- 📫 How to reach me: sam.meghezzi@epfl.ch
 - 😄 Pronouns: He/Him
